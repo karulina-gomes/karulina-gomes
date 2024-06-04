@@ -7,4 +7,6 @@ Meu nome é Ana Karolina Gomes✨
 - Ultilizo esse espaço para a minha organização e compartilhamento dos meus projetos desenvolvidos
 
 Você pode entrar em contato comigo📩
+
+
 00001093868351sp@al.educacao.sp.gov.br
